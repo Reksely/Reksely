@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Reksely
-- 👀 I’m interested in getting fucked by c++
-- 📫 Contact me in Discord ig
+- 👀 At the moment very interested in NextJS
+- 📫 Contact me in Discord @forbiele
